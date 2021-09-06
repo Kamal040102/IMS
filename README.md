@@ -53,5 +53,5 @@
 > > > ###### 2) Same procedure is to be follow for other options.
 
 ### Other Useful Links:
-> Linkedin: linkedin.com/in/kamal-sharma-890519141
-> Instagram: instagram.com/mrajibsharma
+> ##### Linkedin: https://www.linkedin.com/in/kamal-sharma-890519141
+> ##### Instagram: https://www.instagram.com/mrajibsharma
